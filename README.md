@@ -70,7 +70,7 @@ I am eager to contribute my knowledge and grow as an IT professional, especially
 
 ## 📫 Let's Connect!
 
-- LinkedIn: https://www.linkedin.com/in/andani-mapholi 
+- LinkedIn: www.linkedin.com/in/andani-mapholi-6b4101282 
 - Email: andanimapholi08@gmail.com
 - Phone: 0677596916
 
